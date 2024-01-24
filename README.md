@@ -1,6 +1,6 @@
-- feel free to talk to me espescially if we have common interests (unless you fit in dni list) i'm super nice! :33
+- feel free to talk to me espescially if we have common interests (unless you fit in dni list) i promise i'm cool
 
-- but dni if: islamophobic, supports israel, amab(assigned male at birth, due to me being muslim; we cannot talk to opposite sex), and basic dni criteria.
+- dni if: islamophobic, supports israel, amab(assigned male at birth, due to me being muslim; we cannot talk to opposite sex), and basic dni criteria.
   more about me in my spachey :D <a href="https://spacehey.com/zairraluvss" target="_blank">myspaceheyprofile</a>
 
 <!---
