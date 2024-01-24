@@ -1,5 +1,5 @@
 - 👋 hii I'm zairra
-- 👀 I’m interested in animated shows and movies, and shous
+- 👀 I’m interested in animated shows and movies, and shows
 - 💞️ open to making new friends feel free to say hi to me
   but dni if: islamophobic, supports israel, amab(assigned male at birth, due to me being muslim; we cannot talk to opposite sex), and basic dni criteria
   more about me in my spachey c: <a href="https://spacehey.com/zairraluvss" target="_blank">myspaceheyprofile</a>
